@@ -4,4 +4,4 @@
 <br>
 برای اطلاعات بیشتر ویدیو زیر را تماشا کنید
 <br>
-https://youtu.be/h2BfVfoiY1Y
+https://youtu.be/S6saH8V9cEo
